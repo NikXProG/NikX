@@ -1,3 +1,0 @@
-# NikX
-# NikX
-# NikX
